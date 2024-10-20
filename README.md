@@ -7,6 +7,3 @@ I plan to work in academia, both in instruction and in research. I love discussi
 
 
 But my most favorite thing in the world - is you hugging me :D.
-
-🌹7/7/2024
-😭 5/12/2014
